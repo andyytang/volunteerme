@@ -1,5 +1,5 @@
 # Volunteer. Me.
-*Volunteering improves us. 
+*Volunteering improves us.*
 
 
 
